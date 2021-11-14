@@ -1,4 +1,4 @@
-14 November 2021 
+14 November 2021 Sunday
 
  BIKE SHARE DATA INVESTIGATION 
 
